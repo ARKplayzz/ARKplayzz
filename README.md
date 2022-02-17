@@ -1,4 +1,4 @@
-# Hello Comrades, How goes it on these side of the internet
+# Hello Comrades, How goes it on this side of the internet
 I do computers (sometimes).
 
 things Im working on ¯\_( ͡ᵔ ͜ʖ ͡ᵔ)_/¯
