@@ -5,6 +5,7 @@ things Im working on ¯\_( ͡ᵔ ͜ʖ ͡ᵔ)_/¯
 - AyameBot
 - AyameNet (WIP)
 - Server hosting hmu
+- AS19894 (for school)
 
 Add me on Discord @ ARKplayz#3818!
 
