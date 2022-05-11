@@ -1,4 +1,4 @@
-# Hello Comrades, How goes it on this side of the internet
+# Howdy, I do servers and stuff.
 I do computers (sometimes).
 
 things Im working on ¯\_( ͡ᵔ ͜ʖ ͡ᵔ)_/¯
